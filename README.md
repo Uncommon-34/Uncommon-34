@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on ALOT of things<br>👯 I’m looking to collaborate<br>🌱 I’m currently studding computer science<br>💬 Ask me about what happened to Darth Plagueis the wise <br>⚡ Fun fact I'm Autistic
+🔭 I’m currently working on ALOT of things<br>👯 I’m wanting to collaborate<br>🌱 I’m currently studding computer science<br>💬 Ask me about what happened to Darth Plagueis the wise <br>⚡ Fun fact I'm Autistic
 
 
 ## 🌐 Socials:
